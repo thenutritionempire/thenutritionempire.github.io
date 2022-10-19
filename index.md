@@ -1,5 +1,6 @@
-Here you can say lots of fun things about your site.
 
-Maybe say a some things about yourself.
+We’re a trusted sports nutrition store, delivering a range of authentic products from the world’s most trusted supplement brands. Including Optimum Nutrition, MuscleTech, Dymatize, Ripped up nutrition, Avvatar, GNC, Universal, BSN, Labrada, and GAT. 
 
-Or maybe what you plan to blog about.
+*Product range*
+
+We deal in a wide range of dietary products including Whey protein, Fish oil, Multivitamins, BCAA, EAA, Pre-workout, Joint Support, Weight gainers, Protein pancake, Protein Oats, High Protein Peanut Butter, etc.
